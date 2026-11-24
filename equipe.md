@@ -8,4 +8,4 @@ Eloi : Grace au code on peut exprimer son imagination
 
 ## Membre B
 
-à compléter
+Gersende : découvrir tout ce qu'il est possible de faire
