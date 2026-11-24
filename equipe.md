@@ -4,7 +4,7 @@ Devise : à définir
 
 ## Membre A
 
-à compléter
+Eloi : Grace au code on peut exprimer son imagination
 
 ## Membre B
 
