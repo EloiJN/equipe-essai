@@ -8,4 +8,4 @@ Devise : à définir
 
 ## Membre B
 
-à compléter
+Gersende : découvrir tout ce qu'il est possible de faire
